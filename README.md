@@ -1,3 +1,4 @@
-(https://media.wired.com/photos/627da1085d49787abdf713b4/master/pass/Pakistani-Gamers-Want-a-Seat-at-the-Table-Culture-shutterstock_1949862841.jpg)
+![image](https://user-images.githubusercontent.com/109420096/179402677-96973d8d-e7dd-4780-a9a5-b6c22f50ce0f.png)
+
 #LuckyIbo
 #join discord [Link](https://discord.gg/5kNnmysgVx)
