@@ -7,5 +7,5 @@ LuckyIbo
 join discord [Link](https://discord.gg/5kNnmysgVx)
 
 
-lucky ibo on YouTube 
+lucky ibo on YouTube [Link](https://m.youtube.com/c/Goibo)
 
