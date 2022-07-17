@@ -1,2 +1,2 @@
 # LuckyIbo.com
-#join discord https://discord.gg/5kNnmysgVx
+#join discord [Link](https://discord.gg/5kNnmysgVx)
